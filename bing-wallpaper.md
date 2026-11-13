@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-14 | [Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg) 
+
 2026-11-12 | [American flags in a public park in upstate New York (© Matt Champlin/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg) 
 
 2026-11-11 | [Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg) 
